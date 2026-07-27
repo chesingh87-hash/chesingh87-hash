@@ -1,4 +1,4 @@
-# Hi there, I'm Chetna Singh Patiyali 👋
+# Hi there, I'm Chetna Singh 👋
 
 ## About Me
 
